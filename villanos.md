@@ -1,4 +1,0 @@
-## Villanos
-
-# Dr. Doom
-# Carnage
